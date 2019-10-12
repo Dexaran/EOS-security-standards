@@ -1,4 +1,4 @@
-#EosBet hack
+# EosBet hack
 
 ## Explanation
 
